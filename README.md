@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **strwysthvn@gmail.com**
 
-- 🔭 I’m looking for any collaboration :)
+- 🔭 I’m looking for any **Collaboration**
   
 <h3 align="left">Languages and Tools:</h3>
 
